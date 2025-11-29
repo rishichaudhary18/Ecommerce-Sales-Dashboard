@@ -70,7 +70,7 @@ Dataset includes:
 **Rishi Raj**
 
 ## 🔗 Connect With Me
-LinkedIn: *(Add your link)*
+LinkedIn: https://www.linkedin.com/in/rishi-raj-32b838338/
 
 ---
 
